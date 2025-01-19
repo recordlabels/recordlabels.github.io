@@ -2,11 +2,12 @@
 is really really cool. My Project has a subdir named myLib, see below.
 
 ## myLib documentation
-see documentation [here](Test.md)
+A. See documentation [here](Test.md)
 
-link to [Silver Ring](1. Silver Ring.md)
+1. link to [Silver Ring](1. Silver Ring.md) 
 
-link to [Six-Eye](2. Six-Eye.md)
+
+2. link to [Six-Eye](2. Six-Eye.md)
 
 The (US) Columbia Graphophone Co first established operations in Canada with a Toronto company known succcessively as Columbia Phonograph 1904-13, Columbia Graphophone 1914-22, Columbia Gramophone 1923-4, and Columbia Phonograph 1925-3?. By 1912 Columbia had established a factory in Toronto for pressing records and assembling graphophones. In 1923, however, the parent company declared bankruptcy for various reasons, including an unmanageably high inventory and the rapid advance of radio. The following year it was reorganized as the Columbia Phonograph Co and its Canadian operation was taken over by Montreal financiers, who maintained the head office in Toronto and distribution centres in Vancouver, Winnipeg, and Montreal. The Canadian operation did not survive the depression.
 
