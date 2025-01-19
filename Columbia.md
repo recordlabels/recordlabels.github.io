@@ -4,11 +4,11 @@ The (US) Columbia Graphophone Co first established operations in Canada with a T
 * **Columbia Phonograph** 1904-1913
 *  **Columbia Graphophone** 1914-1924
 *  **Columbia Phonograph** 1925-3?. 
-
+### 1912
 In 1912, Columbia established a factory in Toronto for pressing records and assembling graphophones. 
-
+### 1923
 In 1923, the parent company declared bankruptcy.
-
+### 1925
 in 1925, it was reorganized as the Columbia Phonograph Co and its Canadian operation was taken over by Montreal financiers, who maintained the head office in Toronto and distribution centres in Vancouver, Winnipeg, and Montreal. **The Canadian operation did not survive the depression**.
 
 In 1939, CBS made a distribution deal with **Sparton Records** to release Columbia records in Canada under the Columbia name as a Canadian licensee, presser and distributor for the Columbia line.
