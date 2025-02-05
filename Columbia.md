@@ -29,14 +29,18 @@ In 1953, with number 525, Columbia switched to the more familiar red label, and 
 ### 1954
 In 1954, Columbia ended its distribution arrangement with Sparton Records and formed **Columbia Records of Canada, Ltd.** with a head office initially in Toronto and, as of 1960, in its suburb of Don Mills.  operating under this name from <mark>15 March 1954 until 08 June 1976</mark>, when it was renamed to CBS Records Canada Ltd.
 
+In 1954, Columbia introduced its new "Walking Eye" logo. Columbia continued to use the "notes and mike" logo on record labels and even used a promo label showing both logos until the **"notes and mike" was phased out in 1958.** The original Walking Eye was tall and solid; it was modified in 1961 to the one still used today.
+
 In April 1954, the Walking Eye appeared on the back cover of LPs. See ML 4853 for example.
 
 In October, 1954, the Walking Eye appeared on a record label. See Harry James And His Orchestra's "One O'Clock Jump / Two O'Clock Jump"
 
-In 1954, Columbia introduced its new "Walking Eye" logo. Columbia continued to use the "notes and mike" logo on record labels and even used a promo label showing both logos until the **"notes and mike" was phased out in 1958.** The original Walking Eye was tall and solid; it was modified in 1961 to the one still used today.
-
 ### 1955: Six-Eye Label
 In 1955, the **six-eye logo** appeared on record labels.
+
+In March 1955, the tape reel logo appears underneath the LP logo on record covers (see ML 4966).
+
+In summer 1955, the reel was dropped and "A High Fidelity Recording" was added above the LP logo on record covers (see ML 5035).
 
 ### 1956
 In 1956, Columbia began recording in stereo but **stereo LPs did not begin to be manufactured until 1958**.
