@@ -57,6 +57,8 @@ By spring 1957,  Columbia moves to a more horizontal logo placement with Columbi
 ### 1958: Stereo
 In September 1958, that Columbia began simultaneous mono/stereo releases. Mono versions of otherwise stereo recordings were discontinued in 1968.
 
+Around this time, the L-shaped logo arrangement on the cover was replaced with a purely horizontal arrangement with the "Lp" logo moved up and to the right of the Walking Eye logo
+
 ### 1961: Small CBS
 In late 1961, Columbia releases started carrying a **small "CBS" at the top of the label**. This text would be used on the Columbia labels until June 1962.
 
