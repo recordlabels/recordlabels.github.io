@@ -45,6 +45,15 @@ In summer 1955, the reel was dropped and "A High Fidelity Recording" was added a
 ### 1956
 In 1956, Columbia began recording in stereo but **stereo LPs did not begin to be manufactured until 1958**.
 
+In May 1956,  the Walking Eye appears on front covers with the "Lp" logo forming its "pupil" and below a similar eye-shaped logo with "360 Sound" in the center and Guaranteed High-Fidelity at the bottom.
+
+In Fall 1956, the "360 Sound" logo switched from an eye-shaped oval to an egg-shaped oval with repeating squares in the middle.
+
+### 1957
+In early 1957, Columbia dispensed with "360 Sound" and adopted a 4-part vertical logo: Columbia in a square, followed by the Walking Eye logo, followed by the "Lp" logo, followed by "Guaranteed High-Fidelity."
+
+By spring 1957,  Columbia moves to a more horizontal logo placement with Columbia to the left of a Walking Eye stacked above the Lp logo.
+
 ### 1958: Stereo
 In September 1958, that Columbia began simultaneous mono/stereo releases. Mono versions of otherwise stereo recordings were discontinued in 1968.
 
