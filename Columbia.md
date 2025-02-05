@@ -60,7 +60,11 @@ In September 1958, that Columbia began simultaneous mono/stereo releases. Mono v
 Around this time, the L-shaped logo arrangement on the cover was replaced with a purely horizontal arrangement with the "Lp" logo moved up and to the right of the Walking Eye logo
 
 ### 1961: Small CBS
+In summer 1961, the "Lp" logo was dropped, and the Walking Eye transformed to three concentric oval rings surrounding and central circle. 
+
 In late 1961, Columbia releases started carrying a **small "CBS" at the top of the label**. This text would be used on the Columbia labels until June 1962.
+
+In late 1961, the horizontal logo arrangement was reduced to a simple square (or rectangle) with Columbia atop the Walking Eye logo. The catalog number would appear on the top.
 
 ### 1962: Two-Eye Label
 In June 1962, Columbia adopted the **"two eye"** label, as there were two CBS logos, one at each of the 9- o'clock and 3-o'clock positions around the label's edge. 
