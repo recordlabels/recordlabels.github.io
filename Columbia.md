@@ -54,10 +54,14 @@ In early 1957, Columbia dispensed with "360 Sound" and adopted a 4-part vertical
 
 By spring 1957,  Columbia moves to a more horizontal logo placement with Columbia to the left of a Walking Eye stacked above the Lp logo.
 
+By late 1957, the L-shaped logo arrangement on the cover was replaced with a purely horizontal arrangement with the “Lp” logo moved up and to the right of the Walking Eye logo (see CL 1077 and the [December 16, 1957 edition of Billboard Magazine (p. 32)](https://www.worldradiohistory.com/hd2/IDX-Business/Music/Billboard-Index/IDX/1957/Billboard%201957-12-16-OCR-Page-0030.pdf#search=%22cl%201077%22)).
+
+
+December 16, 1957 edition of Billboard Magazine (p. 32))].
+
+
 ### 1958: Stereo
 In September 1958, that Columbia began simultaneous mono/stereo releases. Mono versions of otherwise stereo recordings were discontinued in 1968.
-
-Around this time, the L-shaped logo arrangement on the cover was replaced with a purely horizontal arrangement with the "Lp" logo moved up and to the right of the Walking Eye logo
 
 ### 1961: Small CBS
 In summer 1961, the "Lp" logo was dropped, and the Walking Eye transformed to three concentric oval rings surrounding and central circle. 
