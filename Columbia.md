@@ -60,6 +60,9 @@ By late 1957, the L-shaped logo arrangement on the cover was replaced with a pur
 ### 1958: Stereo
 In September 1958, that Columbia began simultaneous mono/stereo releases. Mono versions of otherwise stereo recordings were discontinued in 1968.
 
+### 1960
+In summer 1960, the "Lp" logo may have been dropped from the cover. See CL 1486. More research needed. Remaining releases maintain 3 element design, as does the back cover. 
+
 ### 1961: Small CBS
 In summer 1961, the "Lp" logo was dropped, and the Walking Eye transformed to three concentric oval rings surrounding and central circle. 
 
