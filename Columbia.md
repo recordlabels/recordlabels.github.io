@@ -20,7 +20,7 @@ In 1939, CBS made a distribution deal with **Sparton Records** to release Columb
 ### 1948: Long Playing "microgroove" LP
 In June 1948, Columbia introduced the **Long Playing "microgroove" LP** record format, which rotated at 33⅓ revolutions per minute.
 
-### 1951 Black Labels
+### 1951: Black Labels
 In 1951, the 12-inch series started using a black label with silver print and a GL prefix. There's no evidence that this happened in Canada.
 
 ### 1953: Red Label Silver Ring
@@ -55,9 +55,6 @@ In early 1957, Columbia dispensed with "360 Sound" and adopted a 4-part vertical
 By spring 1957,  Columbia moves to a more horizontal logo placement with Columbia to the left of a Walking Eye stacked above the Lp logo.
 
 By late 1957, the L-shaped logo arrangement on the cover was replaced with a purely horizontal arrangement with the “Lp” logo moved up and to the right of the Walking Eye logo (see CL 1077 and the [December 16, 1957 edition of Billboard Magazine (p. 32)](https://www.worldradiohistory.com/hd2/IDX-Business/Music/Billboard-Index/IDX/1957/Billboard%201957-12-16-OCR-Page-0030.pdf#search=%22cl%201077%22)).
-
-
-December 16, 1957 edition of Billboard Magazine (p. 32))].
 
 
 ### 1958: Stereo
