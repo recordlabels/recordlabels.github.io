@@ -25,8 +25,15 @@ In 1951, the 12-inch series started using a black label with silver print and a 
 
 Columbia began issuing 45s in 1951.
 
+### 1952: 360 Sound
+During the summer of 1952, the
+“Columbia 360” phonograph was introduced. The sets included two
+speakers in order to create an illusion of stereophonic sound. The following year, CBS added a third speaker to the “360”set—and the “360” hi-fi, accommodated to play both 3314- and 45-rpm records, quickly became the most popular preassembled phonograph set on the market.
+
 ### 1953: Red Label Silver Ring
 In 1953, with number 525, Columbia switched to the more familiar red label, and started using the CL- prefix for their 12-inch albums as well as their 10-inch albums. Reissues of the GL series used a red label and the CL- prefix instead of GL. This series continued (with the addition of a stereo prefix later) until the early 1970s, when Columbia finally switched to the series they use today.
+
+In 1953, Epic, was formed.
 
 ### 1954
 In 1954, Columbia ended its distribution arrangement with Sparton Records and formed **Columbia Records of Canada, Ltd.** with a head office initially in Toronto and, as of 1960, in its suburb of Don Mills.  operating under this name from <mark>15 March 1954 until 08 June 1976</mark>, when it was renamed to CBS Records Canada Ltd.
