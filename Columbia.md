@@ -23,6 +23,8 @@ In June 1948, Columbia introduced the **Long Playing "microgroove" LP** record f
 ### 1951: Black Labels
 In 1951, the 12-inch series started using a black label with silver print and a GL prefix. There's no evidence that this happened in Canada.
 
+Columbia even began issuing its own 45s in 1951.
+
 ### 1953: Red Label Silver Ring
 In 1953, with number 525, Columbia switched to the more familiar red label, and started using the CL- prefix for their 12-inch albums as well as their 10-inch albums. Reissues of the GL series used a red label and the CL- prefix instead of GL. This series continued (with the addition of a stereo prefix later) until the early 1970s, when Columbia finally switched to the series they use today.
 
